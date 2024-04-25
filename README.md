@@ -1,7 +1,7 @@
 # Presentacion:
 
 Hola, me llamo Pablo, tengo 22 años, me gusta la cocina y tengo un canal de youtube sobre eso que se llama "El Rancho", medio abandonado pero sigue en pie.
-
+les dejo el link para que curoseen: https://www.youtube.com/channel/UC_7WRckaK3sRXMBuIev_CFw
 # Sobre mi:
 Me gusta hacer de todo un poco, cocino, juego de vez en cuendo en la PC, trabajo y estudio...asi que ando sobreviviendo,  me gusta hacer trabajos manuales, por ahi carpinteria, de todo.
 
